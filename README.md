@@ -84,7 +84,7 @@ ASTRON BİLECİK GM
 
 ## 📬 İletişim
 
-* 📧 [astrondefence@gmail.com](mailto:astrondefence@gmail.com)
+* 📧 [astrondefence@gmail.com](mailto:astronteam2023@gmail.com)
 * 📱 Instagram: @astrondefense
 
 ---
