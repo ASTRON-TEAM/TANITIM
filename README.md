@@ -105,6 +105,5 @@ Akademik bilgi ile pratik mühendisliği birleştirerek, **bilimsel ve yenilikç
 
 ---
 
-## 📊 Takım Yapısı (Organizasyon Şeması)
 
 <div align="center">
